@@ -20,4 +20,4 @@ I studied new media and interactive development at RIT, which gave me a foundati
 
 - U.S. Army Officer
 - B.S. New Media Interactive Development — Rochester Institute of Technology
-- Interested in: Chief of Staff, BizOps, Strategy & Ops, Product Management
+- Interested in: Chief of Staff, BizOps, Strategy and Ops, Product Management
